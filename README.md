@@ -4,6 +4,8 @@
 
 如果有同是cn的中学生并且愿意为爱发电的话可以私信我QwQ
 
+qq:2177008493
+
 注：本人很蒟蒻的QwQ
 
 QwQ OvO QAQ OmO O.o o.O O.O o.o 
